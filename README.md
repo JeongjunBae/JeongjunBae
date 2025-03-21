@@ -1,4 +1,4 @@
-### Hi, I'm Lane Wagner
+### Hi, I'm Jeongjun Bae
 * 💼 Feb 2023 ~ Present
 * 📚 Aug 2025 ~
 
