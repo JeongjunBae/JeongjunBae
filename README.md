@@ -1,4 +1,6 @@
-## Hi there 👋
+### Hi, I'm Lane Wagner
+* 💼 Feb 2023 ~ Present
+* 📚 Aug 2025 ~
 
 <!--
 **JeongjunBae/JeongjunBae** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
